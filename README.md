@@ -5,7 +5,7 @@
 
 <div align="center">
 
-[Sign our ATA? Anybody?](https://sparklepaws.atabook.org/) ⮞ [Our VRC!](https://vrchat.com/home/user/usr_7f45f5ae-cb2f-4419-8bf0-3d7084a9f95b)
+[Sign our ATA? Anybody?](https://sparklepaws.atabook.org/)　.✦ ݁˖　[Our VRC!](https://vrchat.com/home/user/usr_7f45f5ae-cb2f-4419-8bf0-3d7084a9f95b)
 </div>
 
 <div align="center">
