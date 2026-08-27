@@ -83,3 +83,27 @@
 ゛⌇　　*SYSTEM NAME*　　|　　Fragmented Memories
 
 　　⸝⸝　If ask is anywhere, do *NOT* assume we are just blurry. Please just ask who it is; we don't always use ask to signal that we are blurred.
+  
+<div align="center">
+
+![](https://64.media.tumblr.com/fe555a4f8cf98e70037ce696b37187ae/53460eb827122b25-6d/s400x600/a5c22c44338b0a050e8b7e19aa12e03d72bb7293.pnj)
+</div>
+
+<div align="right">
+
+# DNIs
+</div>
+
+　　⸝⸝　Generally Problematic Supporters (Fandoms, Stereotypes, so on so fourth)
+
+　　⸝⸝　T(ransphobic) . R(acist) . A(belist) . S(exist) . H(omophobic)
+
+　　⸝⸝　Serious Disorder Fakers / Attention Seekers
+
+　　⸝⸝　Zoophiles / Pedophiles / Predators
+
+　　⸝⸝　The age groups of 12- (5 to 12) to 18+ (18 or older) _WITHOUT PERMISSION._
+  
+　　　⸝⸝　__We have friends who are in the 18+ range, but we've gotten to know them/are comfortable with them being our friend.__
+   
+ 　　⸝⸝　Trump/Ice supporters.
