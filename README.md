@@ -22,12 +22,12 @@
 
 ゛⌇　　__Socially Anxious, Bipolar, ADHD, Type 1 Diabetic__
 
-  ⸝⸝　We have _anger issues_, so please interact with extreme caution at most to all times when approaching/interacting with us! We also have _horrid social cue sensing_, so please attempt to make any cues clear, or else we may not get it.
+　　⸝⸝　We have _anger issues_, so please interact with extreme caution at most to all times when approaching/interacting with us! We also have _horrid social cue sensing_, so please attempt to make any cues clear, or else we may not get it.
 
-  ⸝⸝　This also goes for tonetags. We often suck at telling the tone of a message, so please attempt to use them with us!
+　　⸝⸝　This also goes for tonetags. We often suck at telling the tone of a message, so please attempt to use them with us!
 
 ゛⌇　　We are 16 Bodily　,,　January 29th, 2010
 
 ゛⌇　　We do _deal with school at the moment._ If we are to suddenly go AFK or quit answering, then we most likely have gotten into a live class but stayed on the game!
 
-  ⸝⸝　__This also goes for sleeping. We tend to leave our game running when going to sleep. We will try to make it clear so that you don't go to thinking we are ignoring you/are occupied!__
+　　⸝⸝　__This also goes for sleeping. We tend to leave our game running when going to sleep. We will try to make it clear so that you don't go to thinking we are ignoring you/are occupied!__
