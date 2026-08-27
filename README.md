@@ -65,3 +65,21 @@
 ゛⌇　　#3　　|　　@[THE-SONNELLINOS](https://github.com/THE-SONNELLINOS)
 
 ゛⌇　　#4　　|　　@[kniferrific](https://github.com/kniferrific)
+
+<div align="center">
+
+![](https://64.media.tumblr.com/fe555a4f8cf98e70037ce696b37187ae/53460eb827122b25-6d/s400x600/a5c22c44338b0a050e8b7e19aa12e03d72bb7293.pnj)
+</div>
+
+<div align="right">
+
+# System Information
+</div>
+
+゛⌇　　Front/Fronting/In Front = Summon/Summoned/In Summon
+
+゛⌇　　***Questioning OSDD System W/ Trauma***
+
+゛⌇　　*SYSTEM NAME*　　|　　Fragmented Memories
+
+　　⸝⸝　If ask is anywhere, do *NOT* assume we are just blurry. Please just ask who it is; we don't always use ask to signal that we are blurred.
