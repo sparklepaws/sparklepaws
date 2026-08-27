@@ -106,4 +106,8 @@
   
 　　　⸝⸝　__We have friends who are in the 18+ range, but we've gotten to know them/are comfortable with them being our friend.__
    
- 　　⸝⸝　Trump/Ice supporters.
+　　⸝⸝　Trump/Ice supporters.
+
+　　⸝⸝　PonyTown Skin Stealers.
+   
+　　　⸝⸝　__Most to all of our skins on PonyTown are *DO NOT COPY.* If you would like to take inspiration, then please ask.__
