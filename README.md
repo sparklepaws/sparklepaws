@@ -119,7 +119,7 @@
 
 <div align="right">
 
-# Wonder where all our dividers and other decals come from?
+# Wonder where all our decals come from?
 </div>
 
 ゛⌇　　Most are found from tumblr, but here's our sources!
@@ -127,3 +127,61 @@
 ଘ　　[TUMBLR PAGE](https://www.tumblr.com/tagged/dividers)
 
 ଘ　　[BLINKIE COLLECTION](https://adriansblinkiecollection.neocities.org/)
+
+<div align="center">
+  
+![](https://64.media.tumblr.com/fe555a4f8cf98e70037ce696b37187ae/53460eb827122b25-6d/s400x600/a5c22c44338b0a050e8b7e19aa12e03d72bb7293.pnj)
+
+# RANDOM DECAL STUFF!!!
+</div>
+
+![](https://adriansblinkiecollection.neocities.org/stamps/d11.gif)
+![](https://adriansblinkiecollection.neocities.org/stamps/d5.jpg)
+![](https://adriansblinkiecollection.neocities.org/stamps/c2.gif)
+![](https://adriansblinkiecollection.neocities.org/stamps/b58.gif)
+![](https://adriansblinkiecollection.neocities.org/stamps/k48.png)
+![](https://adriansblinkiecollection.neocities.org/stamps/k39.gif)
+![](https://adriansblinkiecollection.neocities.org/stamps/k28.png)
+![](https://adriansblinkiecollection.neocities.org/stamps/k13.png)
+![](https://adriansblinkiecollection.neocities.org/stamps/k20.png)
+![](https://adriansblinkiecollection.neocities.org/stamps/e104.png)
+![](https://adriansblinkiecollection.neocities.org/stamps/e113.gif)
+![](https://adriansblinkiecollection.neocities.org/stamps/e89.jpg)
+![](https://adriansblinkiecollection.neocities.org/stamps/e93.gif)
+![](https://adriansblinkiecollection.neocities.org/stamps/e95.gif)
+![](https://adriansblinkiecollection.neocities.org/stamps/e63.gif)
+![](https://adriansblinkiecollection.neocities.org/stamps/e68.gif)
+![](https://adriansblinkiecollection.neocities.org/stamps/e54.png)
+![](https://adriansblinkiecollection.neocities.org/stamps/f38.gif)
+![](https://adriansblinkiecollection.neocities.org/stamps/f22.png)
+![](https://adriansblinkiecollection.neocities.org/stamps/f27.gif)
+![](https://adriansblinkiecollection.neocities.org/stamps/j5.png)
+![](https://adriansblinkiecollection.neocities.org/stamps/j6.png)
+![](https://adriansblinkiecollection.neocities.org/stamps/i16.png)
+![](https://adriansblinkiecollection.neocities.org/stamps/i17.png)
+![](https://adriansblinkiecollection.neocities.org/stamps/a60.gif)
+![](https://adriansblinkiecollection.neocities.org/stamps/a51.gif)
+![](https://adriansblinkiecollection.neocities.org/stamps/a9.gif)
+
+![](https://adriansblinkiecollection.neocities.org/buttons/i2.png)
+![](https://adriansblinkiecollection.neocities.org/buttons/a122.gif)
+![](https://adriansblinkiecollection.neocities.org/buttons/a81.gif)
+![](https://adriansblinkiecollection.neocities.org/buttons/4.jpg)
+
+![](https://adriansblinkiecollection.neocities.org/y8.gif)
+![](https://adriansblinkiecollection.neocities.org/x26.gif)
+![](https://adriansblinkiecollection.neocities.org/x7.gif)
+![](https://adriansblinkiecollection.neocities.org/u8.gif)
+![](https://adriansblinkiecollection.neocities.org/t1.gif)
+![](https://adriansblinkiecollection.neocities.org/r2.gif)
+![](https://adriansblinkiecollection.neocities.org/q1.gif)
+![](https://adriansblinkiecollection.neocities.org/w8.gif)
+![](https://adriansblinkiecollection.neocities.org/w1.gif)
+![](https://adriansblinkiecollection.neocities.org/g44.gif)
+![](https://adriansblinkiecollection.neocities.org/e70.gif)
+![](https://adriansblinkiecollection.neocities.org/d92.gif)
+![](https://adriansblinkiecollection.neocities.org/d18.gif)
+![](https://adriansblinkiecollection.neocities.org/b45.gif)
+![](https://adriansblinkiecollection.neocities.org/b7.gif)
+![](https://adriansblinkiecollection.neocities.org/a28.gif)
+![](https://adriansblinkiecollection.neocities.org/a17.gif)
