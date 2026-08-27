@@ -58,10 +58,10 @@
 # Who are our moots/good friends?
 </div>
 
-゛⌇　　#1　　|　　@drfunkbeat
+゛⌇　　#1　　|　　@[drfunkbeat](https://github.com/drfunkbeat)
 
-゛⌇　　#2　　|　　@Strawberrymilkshxke
+゛⌇　　#2　　|　　@[Strawberrymilkshxke](https://github.com/Strawberrymilkshxke)
 
-゛⌇　　#3　　|　　@THE-SONNELLINOS
+゛⌇　　#3　　|　　@[THE-SONNELLINOS](https://github.com/THE-SONNELLINOS)
 
-゛⌇　　#4　　|　　@kniferrific
+゛⌇　　#4　　|　　@[kniferrific](https://github.com/kniferrific)
