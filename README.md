@@ -17,3 +17,9 @@
 
 # ABOUT US
 </div>
+
+゛⌇　　_Trans-masc, Omnisexual, GenderFluid, Polyamorous_
+
+゛⌇　　__Socially Anxious, Bipolar, ADHD, Type 1 Diabetic__
+
+゛⌇　　We are 16 Bodily　,,　January 29th, 2010
