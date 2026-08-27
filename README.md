@@ -5,7 +5,7 @@
 
 <div align="center">
 
-[Sign our ATA? Anybody?](https://sparklepaws.atabook.org/)　.✦ ݁˖　[Our VRC!](https://vrchat.com/home/user/usr_7f45f5ae-cb2f-4419-8bf0-3d7084a9f95b)　.✦ ݁˖　[Our Discord!](http://discord.com/users/1372949424317403207)　.✦ ݁˖　[Our TH!](https://toyhou.se/FR0STYPAWZ)
+[Sign our ATA? Anybody?](https://sparklepaws.atabook.org/)　.✦ ݁˖　[Our VRChat!](https://vrchat.com/home/user/usr_7f45f5ae-cb2f-4419-8bf0-3d7084a9f95b)　.✦ ݁˖　[Our Discord!](http://discord.com/users/1372949424317403207)　.✦ ݁˖　[Our ToyHouse!](https://toyhou.se/FR0STYPAWZ)
 </div>
 
 <div align="center">
