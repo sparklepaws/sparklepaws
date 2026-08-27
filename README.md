@@ -33,3 +33,35 @@
 ゛⌇　　We do _deal with school at the moment._ If we are to suddenly go AFK or quit answering, then we most likely have gotten into a live class but stayed on the game!
 
 　　⸝⸝　__This also goes for sleeping. We tend to leave our game running when going to sleep. We will try to make it clear so that you don't go to thinking we are ignoring you/are occupied!__
+
+<div align="center">
+
+![](https://64.media.tumblr.com/fe555a4f8cf98e70037ce696b37187ae/53460eb827122b25-6d/s400x600/a5c22c44338b0a050e8b7e19aa12e03d72bb7293.pnj)
+</div>
+
+<div align="right">
+
+# " Where can we find you on PonyTown? "
+</div>
+
+゛⌇　　Typically, we're _in front of the bakery or down lower near the left side of the library!_
+
+゛⌇　　If you cannot find us, we're either offline or not in our common spot! However, this is mostly where we can be found!
+
+<div align="center">
+
+![](https://64.media.tumblr.com/fe555a4f8cf98e70037ce696b37187ae/53460eb827122b25-6d/s400x600/a5c22c44338b0a050e8b7e19aa12e03d72bb7293.pnj)
+</div>
+
+<div align="right">
+
+# Who are our moots/good friends?
+</div>
+
+゛⌇　　#1　　|　　@drfunkbeat
+
+゛⌇　　#2　　|　　@Strawberrymilkshxke
+
+゛⌇　　#3　　|　　@THE-SONNELLINOS
+
+゛⌇　　#4　　|　　@kniferrific
