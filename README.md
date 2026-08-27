@@ -133,7 +133,6 @@
 ![](https://64.media.tumblr.com/fe555a4f8cf98e70037ce696b37187ae/53460eb827122b25-6d/s400x600/a5c22c44338b0a050e8b7e19aa12e03d72bb7293.pnj)
 
 # RANDOM DECAL STUFF!!!
-</div>
 
 ![](https://adriansblinkiecollection.neocities.org/stamps/d11.gif)
 ![](https://adriansblinkiecollection.neocities.org/stamps/d5.jpg)
@@ -185,3 +184,4 @@
 ![](https://adriansblinkiecollection.neocities.org/b7.gif)
 ![](https://adriansblinkiecollection.neocities.org/a28.gif)
 ![](https://adriansblinkiecollection.neocities.org/a17.gif)
+</div>
