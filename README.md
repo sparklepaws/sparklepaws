@@ -25,6 +25,8 @@
 　　⸝⸝　We have _anger issues_, so please interact with extreme caution at most to all times when approaching/interacting with us! We also have _horrid social cue sensing_, so please attempt to make any cues clear, or else we may not get it.
 
 　　⸝⸝　This also goes for tonetags. We often suck at telling the tone of a message, so please attempt to use them with us!
+  
+　　⸝⸝　[Tonetag Information Carrd / NOT OURS](https://tonetags.carrd.co/)
 
 ゛⌇　　We are 16 Bodily　,,　January 29th, 2010
 
