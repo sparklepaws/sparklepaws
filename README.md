@@ -18,7 +18,7 @@
 # ABOUT US
 </div>
 
-゛⌇　　_Trans-masc, Omnisexual, GenderFluid, Polyamorous_
+゛⌇　　***Kai / Flick / Asher / Skin / In Summon***
 
 ゛⌇　　__Socially Anxious, Bipolar, ADHD, Type 1 Diabetic__
 
@@ -27,6 +27,8 @@
 　　⸝⸝　This also goes for tonetags. We often suck at telling the tone of a message, so please attempt to use them with us!
 
 ゛⌇　　We are 16 Bodily　,,　January 29th, 2010
+
+゛⌇　　_Trans-masc, Omnisexual, GenderFluid, Polyamorous_
 
 ゛⌇　　We do _deal with school at the moment._ If we are to suddenly go AFK or quit answering, then we most likely have gotten into a live class but stayed on the game!
 
