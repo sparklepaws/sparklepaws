@@ -78,11 +78,9 @@
 # System Information
 </div>
 
-゛⌇　　Front/Fronting/In Front = Summon/Summoned/In Summon
+゛⌇　　***Questioning OSDD 1B System W/ Trauma***
 
-゛⌇　　***Questioning OSDD System W/ Trauma***
-
-゛⌇　　*SYSTEM NAME*　　|　　Fragmented Memories
+゛⌇　　*COLLECTIVE NAME*　　|　　Monochromatic District
 
 　　⸝⸝　If ask is anywhere, do *NOT* assume we are just blurry. Please just ask who it is; we don't always use ask to signal that we are blurred.
   
